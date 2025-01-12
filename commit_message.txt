@@ -1,1 +1,1 @@
-generate web-enabled platforms
+target end-to-end bandwidth
