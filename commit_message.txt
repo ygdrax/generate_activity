@@ -1,1 +1,1 @@
-harness B2C schemas
+aggregate interactive bandwidth
