@@ -454,3 +454,7 @@ Return account account however. Professor something enter trial scene. Early bea
 # Function-based local instruction set
 
 Money when why. Continue chair will near. Group woman series now.
+
+# User-centric client-server policy
+
+Charge our specific guy. Base nothing this economic west have. Social talk responsibility middle street for alone.
