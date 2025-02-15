@@ -1,1 +1,1 @@
-extend end-to-end solutions
+whiteboard best-of-breed convergence
