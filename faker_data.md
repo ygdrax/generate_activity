@@ -890,3 +890,7 @@ Before particular TV economy. Method table two find. Up ask provide card pressur
 # Innovative real-time database
 
 Both resource as chance help year. Through wonder nothing he listen.
+
+# Face-to-face object-oriented policy
+
+Teacher start whatever conference sort. Site interview believe. Food join easy suffer probably feeling.
