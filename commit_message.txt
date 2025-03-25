@@ -1,1 +1,1 @@
-iterate vertical bandwidth
+enable extensible channels
