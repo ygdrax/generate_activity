@@ -1,1 +1,1 @@
-iterate out-of-the-box paradigms
+target turn-key interfaces
