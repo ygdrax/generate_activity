@@ -1,1 +1,1 @@
-optimize B2B models
+whiteboard best-of-breed schemas
