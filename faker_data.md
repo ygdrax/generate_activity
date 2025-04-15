@@ -1374,3 +1374,7 @@ Class question remain protect system. Increase first southern task long view.
 # Sharable dynamic data-warehouse
 
 Crime dream when doctor recent. Sell skill great today quickly.
+
+# Synergized human-resource policy
+
+Unit loss year clear statement wide. Hit nothing upon Congress budget animal. Civil despite culture skill include just century.
