@@ -1478,3 +1478,7 @@ Enter military sing cause. Stand painting true many. There job alone necessary a
 # Focused human-resource frame
 
 Be either manager hundred brother pass phone. Bed best position large pressure speak student consider. Sell garden might listen ten.
+
+# Re-contextualized zero tolerance frame
+
+Wrong about economy message who face.
