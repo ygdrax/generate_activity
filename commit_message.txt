@@ -1,1 +1,1 @@
-iterate rich e-business
+iterate extensible schemas
