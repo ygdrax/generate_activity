@@ -1,1 +1,1 @@
-synthesize customized initiatives
+deploy back-end interfaces
