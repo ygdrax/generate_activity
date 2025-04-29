@@ -1,1 +1,1 @@
-e-enable cross-platform convergence
+mesh global applications
