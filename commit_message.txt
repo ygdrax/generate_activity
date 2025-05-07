@@ -1,1 +1,1 @@
-target B2B infrastructures
+implement out-of-the-box models
