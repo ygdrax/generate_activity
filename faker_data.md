@@ -1862,3 +1862,7 @@ Price investment five family happen someone keep later. Member executive artist 
 # Right-sized intermediate challenge
 
 Amount structure bit rich political walk place. Go up PM official. Support thing picture return.
+
+# Advanced bi-directional challenge
+
+Capital then investment senior traditional experience. Scene bad pretty blood hour newspaper shake.
