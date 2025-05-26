@@ -1,1 +1,1 @@
-scale sticky web-readiness
+benchmark enterprise web services
