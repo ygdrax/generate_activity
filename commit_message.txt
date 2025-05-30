@@ -1,1 +1,1 @@
-redefine magnetic relationships
+syndicate global interfaces
