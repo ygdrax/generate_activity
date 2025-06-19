@@ -1,1 +1,1 @@
-transform virtual e-business
+aggregate front-end bandwidth
