@@ -1,1 +1,1 @@
-generate distributed web services
+morph back-end info-mediaries
