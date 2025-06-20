@@ -1,1 +1,1 @@
-streamline back-end content
+generate distributed web services
