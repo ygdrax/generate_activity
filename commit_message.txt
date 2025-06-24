@@ -1,1 +1,1 @@
-generate bleeding-edge supply-chains
+visualize turn-key e-commerce
