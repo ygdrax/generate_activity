@@ -1,1 +1,1 @@
-target distributed channels
+implement turn-key platforms
