@@ -1,1 +1,1 @@
-visualize bricks-and-clicks relationships
+e-enable distributed schemas
