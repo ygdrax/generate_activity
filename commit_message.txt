@@ -1,1 +1,1 @@
-extend intuitive relationships
+implement B2B metrics
