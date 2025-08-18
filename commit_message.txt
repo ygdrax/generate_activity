@@ -1,1 +1,1 @@
-monetize dot-com models
+enable front-end web-readiness
