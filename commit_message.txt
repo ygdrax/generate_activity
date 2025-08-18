@@ -1,1 +1,1 @@
-enable front-end web-readiness
+deploy out-of-the-box functionalities
