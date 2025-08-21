@@ -1,1 +1,1 @@
-brand granular schemas
+implement back-end e-commerce
