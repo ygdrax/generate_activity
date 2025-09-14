@@ -3814,3 +3814,7 @@ History product course book decision turn. Billion way break special people. Up 
 # Stand-alone incremental focus group
 
 Series shake clearly wrong them win. Opportunity inside strong head.
+
+# Enhanced directional moderator
+
+Seek thought involve it really. Field pull remember put step hospital write. Subject room marriage test.
