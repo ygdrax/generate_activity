@@ -1,1 +1,1 @@
-redefine out-of-the-box web services
+facilitate scalable schemas
