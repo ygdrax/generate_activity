@@ -1,1 +1,1 @@
-re-contextualize out-of-the-box systems
+scale enterprise schemas
