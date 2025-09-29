@@ -1,1 +1,1 @@
-scale enterprise schemas
+evolve out-of-the-box users
