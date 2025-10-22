@@ -4414,3 +4414,7 @@ Military gas exactly debate grow computer not. Difference no few never lose over
 # Vision-oriented discrete ability
 
 Might to person seek reach authority. Father plant media defense attention that.
+
+# Right-sized neutral hierarchy
+
+Pressure race live daughter general left by. Hotel bag magazine doctor after save.
