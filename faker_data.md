@@ -4462,3 +4462,7 @@ Rule your word direction hold. Sit country inside term.
 # Exclusive tangible intranet
 
 Including opportunity ability threat. Unit what impact why already fish. Color decision area care.
+
+# Devolved transitional solution
+
+Most society start apply become think. Seem field catch brother true history. Single another a according fill single for measure.
