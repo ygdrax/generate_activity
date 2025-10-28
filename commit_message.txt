@@ -1,1 +1,1 @@
-harness real-time interfaces
+architect plug-and-play info-mediaries
