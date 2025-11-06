@@ -1,1 +1,1 @@
-benchmark end-to-end bandwidth
+benchmark magnetic schemas
