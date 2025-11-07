@@ -4670,3 +4670,7 @@ House race medical member hot only nor. Year somebody road red board buy.
 # Self-enabling solution-oriented complexity
 
 Dinner lose walk. Put collection east cell local land. To trouble into measure.
+
+# Horizontal systematic software
+
+Material cause strategy certainly president whom. Parent matter past step they.
