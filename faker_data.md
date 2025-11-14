@@ -4786,3 +4786,7 @@ Stage cost start more. Next camera civil several feel toward capital.
 # Mandatory systemic ability
 
 Wonder buy military fund development once foot area. Everything who these traditional whose develop great.
+
+# Object-based intangible ability
+
+Family join others. Understand mother firm piece lose. Method property father late language difficult.
