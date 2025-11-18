@@ -1,1 +1,1 @@
-implement rich functionalities
+repurpose back-end relationships
