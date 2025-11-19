@@ -1,1 +1,1 @@
-repurpose back-end relationships
+implement one-to-one e-commerce
