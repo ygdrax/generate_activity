@@ -1,1 +1,1 @@
-aggregate out-of-the-box channels
+incubate B2B web-readiness
