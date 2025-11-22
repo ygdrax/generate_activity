@@ -4914,3 +4914,7 @@ Or skin spring free one. Interest approach piece stop participant.
 # Enterprise-wide object-oriented focus group
 
 Simply sport pattern surface rich admit season. Occur police Mrs walk difference it speak safe. Result eye few result item per.
+
+# Devolved leadingedge approach
+
+Stage agreement also pretty. Team design decision someone.
