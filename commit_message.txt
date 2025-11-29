@@ -1,1 +1,1 @@
-maximize best-of-breed systems
+target efficient bandwidth
