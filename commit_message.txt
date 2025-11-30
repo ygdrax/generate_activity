@@ -1,1 +1,1 @@
-benchmark end-to-end convergence
+matrix granular convergence
