@@ -1,1 +1,1 @@
-implement web-enabled schemas
+mesh end-to-end web services
