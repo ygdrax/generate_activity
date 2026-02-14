@@ -1,1 +1,1 @@
-deliver bleeding-edge eyeballs
+generate 24/7 schemas
