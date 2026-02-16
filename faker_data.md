@@ -6278,3 +6278,7 @@ View finally throw arrive speech thank. Clear also could itself management style
 # Phased high-level Graphical User Interface
 
 Radio church where court. International condition father culture most pull call send.
+
+# Operative methodical strategy
+
+Career I people hope team. Evening standard feel short opportunity. Social pick after project continue prevent.
